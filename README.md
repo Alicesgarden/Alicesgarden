@@ -7,8 +7,8 @@
 
 <br><br><br>⺌ 𝟼𝚝𝚎𝚎𝚗 <br><br><br>
 
-𝚐𝚘 𝚏𝚘𝚕𝚕𝚘𝚠 
-<a href="https://github.com/strawpaws">𝚂𝚝𝚛𝚊𝚠𝚙𝚊𝚠𝚜</a> 𝚙𝚕𝚎𝚊𝚜𝚎!!!! /𝚗𝚏 <br>
+𝚐𝚘 𝚌𝚑𝚎𝚌𝚔
+<a href="https://github.com/strawpaws">𝚂𝚝𝚛𝚊𝚠𝚙𝚊𝚠𝚜's</a> 𝚙𝚛𝚘𝚏𝚒𝚕𝚎 !!!! /𝚗𝚏 <br>
 <br>
 
 <img src="https://img1.picmix.com/output/stamp/normal/1/0/3/7/2707301_ff036.png" width="300" height="400"> 
