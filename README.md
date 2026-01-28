@@ -1,4 +1,5 @@
-<img src="https://i.pinimg.com/1200x/87/df/e3/87dfe385fee034be2552a773c27adfb2.jpg">
+<div align="center">
+<img src="https://i.pinimg.com/736x/0b/e9/f9/0be9f9af0a8f8411616b09dbc0eac869.jpg">
 <div align="center">
 <br>
   <br>
@@ -11,5 +12,5 @@
 <a href="https://github.com/strawpaws">𝚂𝚝𝚛𝚊𝚠𝚙𝚊𝚠𝚜's</a> 𝚙𝚛𝚘𝚏𝚒𝚕𝚎 !!!! /𝚗𝚏 <br>
 <br>
 
-<img src="https://img1.picmix.com/output/stamp/normal/1/0/3/7/2707301_ff036.png" width="300" height="400"> 
+<img src="https://s3.getstickerpack.com/storage/uploads/sticker-pack/minori-hanasato-stamps/sticker_8.png?bc158413c2b7f2b9d44d0aa61cdca70a&d=200x200" width="200" height="400"> 
 </div>
